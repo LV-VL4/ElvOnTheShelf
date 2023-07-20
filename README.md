@@ -1,7 +1,7 @@
 – Before you interact –
 
 I dont like being covered by anyone expect friends, because it might
-makes me annoyed and a little mad
+makes me annoyed and a little mad, u could hide u if u do
 
 I am a big simp for sanemi, so please dont judge me for it
 or dont make a fight with me
