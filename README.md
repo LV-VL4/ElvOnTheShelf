@@ -14,3 +14,5 @@ I could easily hide someone or they are trying to have a problems with me
 If u see me sleeping thats means im afk or spectating
 
 Please dont friend me if we only had 1 interact or two
+
+Please dont randomly sit next to me, i dont like it, expect my friends 
