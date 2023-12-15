@@ -10,7 +10,7 @@ I gatekeep sanemi.
 
 I'm also taken.
 
-I'm rarely plays pony town because of chores and etc.
+I rarely plays pony town because of chores and etc.
 
 I can be found in everyplace like GI, SP, KNY, Down below market.
 
