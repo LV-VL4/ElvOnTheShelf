@@ -8,9 +8,8 @@ Please dont randomly friend me if we have a one interact.
 
 I gatekeep sanemi.
 
-I'm also taken.
-
 I rarely plays pony town because of chores and etc.
 
 I can be found in everyplace like GI, SP, KNY, Down below market.
 
+Please DNI with me just to make death jokes, Example: Rengoku Kyojuro, Ace, Muichiro, Genya, and etc. (I might be doing death jokes too..but not that far.)
