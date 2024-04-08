@@ -16,3 +16,5 @@ I can be found in everyplace like GI, SP, KNY, Down below market.
 Please DNI with me just to make death jokes with fictional characters, Example: Rengoku Kyojuro, Ace, Muichiro, Genya, and etc.
 
 I like K-pop(don't worry I'm not one of those fans), kikuo(I think), krushclub song + phonk
+
+often play, MLBB, Guardian Tales, crk(sometimes), Pony town
