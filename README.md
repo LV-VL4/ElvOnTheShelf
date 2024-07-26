@@ -1,20 +1,29 @@
-I dont like being covered by anyone expect my friends, because it might
+DNI 's :
+
+1. I dont like being covered by anyone expect my friends, because it might
 makes me annoyed and a little mad, i could hide u if u do.
 
-If u copied one of my skins, please dni, i dont like being copied.
+2. If u copied one of my skins, please dni, i dont like being copied.
 
-and if u want to insp that's alright,but  just dont heavy insp to much.
+3. Please dont randomly friend me if we have  one interact. 
 
-Please dont randomly friend me if we have  one interact.
+4. if you make some unfunny jokes, like death jokes. PLEASE. DNI.
 
-entp/esfp.
+5. problematic , prxshipper, pedxphiles , DNI.
 
-always or sometimes active on pony town.
+6. if you copied on of my friends and fams skins/morphs. DNI.
 
-I can be found in everyplace like GI, SP, KNY, Down below market.
+INT 's :
 
-Please DNI with me just to make death jokes with fictional characters, Example: Rengoku Kyojuro, Ace, Muichiro, Genya, and etc.
+1. i dont mind having a conversation!!!!
 
-I like K-pop(don't worry I'm not one of those fans), kikuo(I think), krushclub song + phonk
+2. i can get a little freaky with my friends, sorry if i made you uncomfortable...😿
 
-often play, MLBB, Guardian Tales, crk(sometimes), Pony town
+3. i can be found in any places!!!, like kny, gi/hsr, jjk, solarballs, beach below market(might collecting pearls)
+   , but if you dont find me anywhere in one these areas, i might be with my friends or on island
+
+4. PLEASEEE INT IF YOUR A FAN OF ADO OMG!!
+
+5. i like matching skins with my friends a lot sometimes LOLL
+
+6. my fav song is mostly jpop!! but i listened to ado a lot sometimes LOLL
