@@ -12,8 +12,7 @@ makes me annoyed and a little mad, i could hide u if u do.
 5. problematic , prxshipper, pedxphiles , DNI.
 
 6. if you copied on of my friends and fams skins/morphs. DNI.
-
-INT 's :
+BYI :
 
 1. i dont mind having a conversation!!!!
 
@@ -27,3 +26,5 @@ INT 's :
 5. i like matching skins with my friends a lot sometimes LOLL
 
 6. my fav song is mostly jpop!! but i listened to ado a lot sometimes LOLL
+
+(on going) 
